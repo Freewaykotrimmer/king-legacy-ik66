@@ -1,4 +1,4 @@
-#  
+#  elite king legacy Script is the best king legacy Script, featuring undetectable and auto-upgrade. Safe and powerful for all your needs.
 
 
 
